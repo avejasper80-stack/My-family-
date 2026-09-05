@@ -1,3 +1,3 @@
 # My-family-
-I am a boy of 17, I grew up with my uncle's and......to e continued.
+I am a boy of 17, I grew up with my uncle's and I had literally the best day if my life tho...buh when I grew up..life became unnecessarily choking, I had to buckle up my new life style because I knew I was going to face challenges as my mother was no where to be found........my dad had an accident when I was 5 months old, painful right?..yeah.. nevertheless, I stood strong not letting that incident pull me down, I focused on my education........to be continued.....
 This is my life journey as a young boy
